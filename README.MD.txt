@@ -1,0 +1,1 @@
+Estou assistindo muitos conteudos complementares no youtube, achei a aula voltada a quem ja tinha algum conhecimento prévio, que não é o meu caso
